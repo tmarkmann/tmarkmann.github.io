@@ -12,7 +12,7 @@ Inspiration 1
 
 ## Kontakt
 Telefon: +49 521 106-12121  
-E-Mail: thorben.markmann@gmail.com  
+E-Mail: mail@thorbenmarkmann.com  
 
 ## Redaktionell verantwortlich
 Thorben Niklas Markmann  
